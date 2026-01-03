@@ -1,1 +1,1 @@
-Just a newbie, leaarning something new.
+Just a newbie, learning something new.
